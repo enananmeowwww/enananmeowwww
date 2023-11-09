@@ -26,4 +26,4 @@
 
 -🍓 cosplays_; nene yashiro , toya aoyagi . . . 
 
--🌼fandoms_; milgram , pjsk(jp/chn) , vnc , bsd , gnw , crk , genshin , hsr , hi3 , she-ra , lwa , horimiya , sk8 , etc . . .
+-🌼fandoms_; milgram , pjsk(jp/chn) , vnc , bsd , gnw , crk , genshin , hsr , hi3 , she-ra , lwa , horimiya , sk8 , etc . . . 
